@@ -1,4 +1,6 @@
-## Hi there 👋
+## 沐鸣2注册网址|沐鸣2总代理|沐鸣2开户-最新消息-沐鸣2平台
+
+<https://mu-ming2.github.io>
 
 <!--
 **mu-ming2/mu-ming2** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
